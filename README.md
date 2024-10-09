@@ -1,2 +1,2 @@
 # VietNam
-Stakeholder Democratic Foundation in VietNam
+Stakeholders Democratic Foundation in VietNam
